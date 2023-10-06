@@ -1,1 +1,1 @@
-# Logging_SALA
+# ANMÄLNINGAR I SALA KOMMUN
